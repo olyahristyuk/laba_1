@@ -1,1 +1,1 @@
-# laba_1
+Trofimov# laba_1
