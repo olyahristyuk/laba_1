@@ -1,1 +1,1 @@
-# laba_1
+Trof# laba_1
